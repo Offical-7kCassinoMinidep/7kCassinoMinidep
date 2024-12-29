@@ -8,10 +8,10 @@
 <body>
 
 <div style=<text-align: center;">
-<a href="https://tinyurl.com/3kj2yj2s" title="Betano"><img src="https://github.com/user-attachments/assets/eec8b914-bed2-4a42-9a9d-a658831797a6" title="7kCassinoMinidep" alt="7kCassinoMinidep"></a></div>
+<a href="https://tinyurl.com/3kj2yj2s" title="7kCassinoMinidep"><img src="https://static.wixstatic.com/media/2a8103_44a9e01ec3b4451cad8859f6fe231b70~mv2.webp" title="7kCassinoMinidep" alt="7kCassinoMinidep"></a></div>
 <div style=<text-align: center;">
 <a href="https://tinyurl.com/3kj2yj2s">
-<img src="https://github.com/user-attachments/assets/eec8b914-bed2-4a42-9a9d-a658831797a6" />
+<img src="https://img.freepik.com/premium-photo/dynamic-casino-scene-with-playing-cards-chips-dice-flying-background_941466-983.jpg" />
 </a></div>
 
 # 7kCassinoMinidep: Online Betting Login
